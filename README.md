@@ -11,6 +11,10 @@
 ![image](https://github.com/rafree1225/Game_PlaneWar/assets/68884317/5fc0ca06-42d3-4d25-ae87-e74025412abe)
 
 
+![image](https://github.com/rafree1225/Game_PlaneWar/assets/68884317/9d03429e-1eab-4230-85bd-8665dbad65a8)
+
+
+
 **********************************************************************************
 
 簡介：
